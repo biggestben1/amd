@@ -1,0 +1,2 @@
+# amd
+https://advantagemanagementdefinition.org
